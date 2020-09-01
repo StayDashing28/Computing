@@ -6,6 +6,5 @@
   Leaving others with a gasp.
   Co-form teacher acting like a form,
   leaving our class with a forme.
-  
-  
+ 
   
