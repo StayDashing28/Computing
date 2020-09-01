@@ -12,6 +12,9 @@
   Teaching us how to make a good dish,
   With names and terms on the plate,
   Putting nothing else to rebate.
+  Hands always on your face,
+  No wonder you've got a great pace.
+  
   
   
   
