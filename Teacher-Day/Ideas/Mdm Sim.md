@@ -1,24 +1,24 @@
-  Title : Teacher
-  Mdm Sim, Mdm Sim, how are you doing?
-  We hope that you are flowing!
-  Your great lessons are just
-  With me on the cusp
-  Leaving others with a gasp.
-  Co-form teacher acting like a form,
-  leaving our class with a forme.
-  Chinese, Citizenship and Character Education to help us,
-  All of these are done by you to help us not fuss.
-  Calling us some by Chinese or English,
-  Teaching us how to make a good dish,
-  With names and terms on the plate,
-  Putting nothing else to rebate.
-  You Work Work work so hard
-  For your health, no regard
-  although this doesn't show
-  for you're always bright as gold!
+  # Title : Teacher</br>
+  Mdm Sim, Mdm Sim, how are you doing?</br>
+  We hope that you are flowing!</br>
+  Your great lessons are just</br>
+  With me on the cusp</br>
+  Leaving others with a gasp.</br>
+  Co-form teacher acting like a form,</br>
+  leaving our class with a forme.</br>
+  Chinese, Citizenship and Character Education to help us,</br>
+  All of these are done by you to help us not fuss.</br>
+  Calling us some by Chinese or English,</br>
+  Teaching us how to make a good dish,</br>
+  With names and terms on the plate,</br>
+  Putting nothing else to rebate.</br>
+  You Work Work work so hard</br>
+  For your health, no regard</br>
+  although this doesn't show</br>
+  for you're always bright as gold!</br>
   
   
-  :)
+  :)</br>
   
   
   
