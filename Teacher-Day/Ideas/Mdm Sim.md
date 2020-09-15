@@ -8,7 +8,7 @@
   leaving our class with a forme.</br>
   Chinese, Citizenship and Character Education to help us,</br>
   All of these are done by you to help us not fuss.</br>
-  Calling us some by Chinese or English,</br>
+  Calling some of us by Chinese or English,</br>
   Teaching us how to make a good dish,</br>
   With names and terms on the plate,</br>
   Putting nothing else to rebate.</br>
